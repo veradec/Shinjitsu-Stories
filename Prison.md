@@ -1,10 +1,10 @@
-Prologue
+# Prologue
 
 This is a different prison. No, I’m not telling you about
 the prison in which I was lawfully locked up. You’ll surely
 understand, if I elaborate.
 
-Chapter 1- Long Good Bye
+# Chapter 1- Long Good Bye
 
 “You see. It takes time, but it will take place. You’ll listen
 my  name  that  shall  be  uttered  by  your  every  customer.
@@ -30,7 +30,7 @@ you  had  chosen  writing  as  your only  career,  you would
 have been doomed long ago.”
 
 
-“You  too.  Same  old  song.  I  hope  my  next  novel  will
+# “You  too.  Same  old  song.  I  hope  my  next  novel  will
 relieve you from the duty of an arm-chair critic, my friend.
 “
 
@@ -50,7 +50,7 @@ work.”
 “Money for your living at Yanam?”
 
 
-“I have been saving a decent amount since 1981.”
+# “I have been saving a decent amount since 1981.”
 
 “From last 4 years? So, you are planning something big. I
 cannot assure you, still, that your hardwork will pay off.
@@ -75,7 +75,7 @@ your novels to use it to pack tiffin from my hotel. Yet,
 you don’t change, you moron.”
 
 
-“Bring, two chapathi, fast. I need to meet Hussain. It is
+# “Bring, two chapathi, fast. I need to meet Hussain. It is
 already 8:00 P.M.”
 
 “You don’t have any shame, you still seek fame.”
@@ -96,7 +96,7 @@ the feedback.”, Sharan boasted of his culinary skills.
 something I am worried about.”
 
 
-“What, dear? What is it?”
+# “What, dear? What is it?”
 
 “Have  you  noticed?  Your  facial  features  are  changing
 lately.”
@@ -119,7 +119,7 @@ doctor after I finish my novel.”
 “ God, put some sense into his brain!”
 
 
-“ Bye, Sharan.”
+# “ Bye, Sharan.”
 
 “ Take care, you, sick head.”
 
@@ -138,7 +138,7 @@ I told Hussain that I am going to Yanam on finishing pre-
 writing work for my next.
 
 
-“ Sahith, can you elaborate the idea you have? Why are
+# “ Sahith, can you elaborate the idea you have? Why are
 you going to Yanam all the way, and that too, for 5 years?
 Can’t  you  get  the  information  in  local  libraries,  as  you
 always do?”
@@ -167,7 +167,7 @@ answers, I met Francois. Francois is a French surgeon. I
 met him by chance, when he came to Hyderabad to visit
 
 
-Salar Jung museum. I spoke to him. He revealed that his
+# Salar Jung museum. I spoke to him. He revealed that his
 ancestor was closely associated with Sade, when Sade was
 imprisoned at Bastille prison. He also has private copies
 of Sade’s novels. They were collected by his ancestor after
@@ -192,7 +192,7 @@ that is going to deal with dark and brutal aspects of human
 nature? Will people read it? “
 
 
-“  Hussain,  you  are  correct.  I  do  not  want  to  sugarcoat
+# “  Hussain,  you  are  correct.  I  do  not  want  to  sugarcoat
 things. I want to present brutality as brutality.”
 
 “ All the best! I shall be waiting for your return.”
@@ -218,7 +218,7 @@ burn. They take their own sweet time to build a setting
 which  leads  to  an  impactful  conclusion.  People  need
 
 
-constant  rush  of  adrenaline.  Your  novels  can’t  do  that.
+# constant  rush  of  adrenaline.  Your  novels  can’t  do  that.
 But, if read with patience, they can be very satisfying.”
 
 “  Thank  you,  Hussain.  You  are  the  only  one  who
@@ -226,7 +226,7 @@ understood my works so well. Good bye, Hussain. Take
 care.”
 
 
-Chapter 2 – Yanam
+# Chapter 2 – Yanam
 Yanam is a very beautiful place. The greenery here gives
 me very positive feeling. The people, here, are very kind
 and  helpful.  I  met  Francois  and  greeted  him.  I  tried  to
@@ -251,7 +251,7 @@ hormone.
 and get rid of the tumor. Otherwise, there will be more
 
 
-complications for you. Obstruction of upper airway due
+# complications for you. Obstruction of upper airway due
 to  enlargement  of  tongue  and  thickening  of  laryngeal
 cartilages, that may cause sleep apnea, which may lead to
 death.  Acromegaly,  further  causes  heart  problems,  and
@@ -275,7 +275,7 @@ buffer.  That  money  will  help  me  publish  my  novel  if  I
 have to face the worst case scenario after five years.”
 
 
-“ There is no other way to skip the treatment, except, if
+# “ There is no other way to skip the treatment, except, if
 you wish to die. But, there is a way to save that ₹50,000.
 You  can  stay  at  my  residence  and  eat  the  food  we  eat,
 these five years.”
@@ -303,7 +303,7 @@ Dr. Francois had let me know that Sade was praised by a
 French  feminist  activist  and  existentialist  philosopher,
 
 
-Simone  de  Beauvoir. I  was  so  shocked and  intrigued.  I
+# Simone  de  Beauvoir. I  was  so  shocked and  intrigued.  I
 went on to know more about Sade. But, little is known
 about Sade’s early years that explains his later fascinations
 with sex and torture. Some of the Sade’s quotations were
@@ -333,7 +333,7 @@ making devil into an angel. Surely, my protagonist was a
 mix  of  both,  just  like  Sade.  In  fact,  like  every  human.
 
 
-Every human is a mix of both evil and good- will. But,
+# Every human is a mix of both evil and good- will. But,
 they hide the evil under the shrouds, repress it to make it
 express  itself,  in  the  most  horrifying  ways,  one  can
 imagine.  But,  Sade  and  my  protagonist  projected
@@ -357,7 +357,7 @@ Yanam is so beautiful, that I wanted to stay there after my
 retirement.
 
 
-Chapter 3 - Please, publish.
+# Chapter 3 - Please, publish.
 
 I went back to my home. Sharan is the house owner since
 his father’s death. Sharan is actually 5 years elder than me.
@@ -378,7 +378,7 @@ mean nothing to you, so I did not call you.”, I replied.
 “ It’s good that you still remember.”
 
 
-“  How  can  I  forget  something  that  is  as  great  as  my
+# “  How  can  I  forget  something  that  is  as  great  as  my
 novels? “
 
 “ The same overconfidence and superiority complex.”
@@ -400,7 +400,7 @@ can help you, I shall do it.”
 it for you.”
 
 
-“ ₹30,000”
+# “ ₹30,000”
 
 I gave ₹ 30,000 to Hussain, from my savings. I rejoined
 as  a  government  teacher.  I  was  assigned  to  a  different
@@ -421,7 +421,7 @@ consider the changes, I shall publish this for you.”, said
 the last publisher.
 
 
-I asked him for his suggestions.
+# I asked him for his suggestions.
 
 “  Your  novel  starts  with  depiction  of  a  sexual  act,
 followed  by  a  brutal  murder.  There  are  no  sexual  acts,
@@ -446,7 +446,7 @@ instant bestseller. What do you say?”
 Please, publish it as it is, sir.”
 
 
-“ Hey, author! I understood the point of your novel. But,
+# “ Hey, author! I understood the point of your novel. But,
 90% of the readers don’t like that stuff. According to me,
 any  form  of  fiction  is  only  meant  for  entertaining  the
 consumers.  You  give  your  consumers,  a  constant
@@ -473,7 +473,7 @@ are like, when they’re going through that, may give you a
 little bit  more  empathy.  The  art,  sometimes,  is  there  to
 
 
-make you incredibly uncomfortable. Sometimes, we, the
+# make you incredibly uncomfortable. Sometimes, we, the
 authors,  can  deal  with  seriously  awkward  stuff,  in  a
 humorous way. It becomes dark humour. But, I chose not
 to deal my 5th novel, ‘Sadist’, in a humorous way. It is dark,
@@ -487,7 +487,7 @@ remained,  unpublished.  This  is  certainly  not  my  lowest
 point. Yet, I feel depressed.
 
 
-Chapter 4 - My family
+# Chapter 4 - My family
 
 My father was a blacksmith. He used to make all kinds of
 iron related tools. He made an iron ring for me. It was a
@@ -513,7 +513,7 @@ creeps. We could not escape the stigma and the bias.
 stated.  Killing  a  person  is  not  at  all  justifiable.  But,  my
 father was my father, before he turned into a murderer.
 
-As  his  son,  I  still  love  him,  as  my  father.  No  one  is
+# As  his  son,  I  still  love  him,  as  my  father.  No  one  is
 concerned  about  why  my  father  killed  that  person.  My
 father’s last words before he was hung to death. His last
 wish was to speak to me and my mother.
@@ -543,7 +543,7 @@ the  way  he  behaves  in  front  of  others.  He  might  have
 been  so  frustrated  that  day.  Other  than  that,  he  was  a
 
 
-good man. I couldn't control  my rage. I killed him.  He
+# good man. I couldn't control  my rage. I killed him.  He
 had a family, too. Now, I have nothing left, but, guilt. Stay
 strong, my son. Now, because I am a criminal, people will
 try to hurt you, offend you easily. It would be very easy
@@ -570,7 +570,7 @@ mother to have sex with him, in exchange for money. My
 mother  gently  refused.  He  forced  himself  on  to  my
 
 
-mother. My mother stuck a knife in his eyeball, and quit
+# mother. My mother stuck a knife in his eyeball, and quit
 the job. Thrigun, that one-eyed monster, sent people to
 our  residence.  Those  people  told  our  neighbourhood
 about my father’s crime. They even came to school, and
@@ -588,7 +588,7 @@ deliberately,  did  not  get  the  treatment.  We  don’t  know
 why.
 
 
-Chapter 5 - The critic
+# Chapter 5 - The critic
 I started saving some money, again. In those five years, I
 saved  some  decent  amount,  so  that  I  can  get  my  book
 published,  using  Hussain’s  company  staff.  By  God’s
@@ -615,7 +615,7 @@ Hussain,  that  he  would  read  the  novel.  He  asked  for  a
 copy of our novel, the next day.
 
 
-We went to his house, the next day. Thrigun was there! I
+# We went to his house, the next day. Thrigun was there! I
 told Hussain, not to give the copy to Bhushan, then. We
 withdrew from giving the copy to Bhushan, that day.
 
@@ -630,7 +630,7 @@ that,  there  won’t  be  any  difference  between  those  who
 branded me as ‘son of criminal’, and me.
 
 
-Chapter 6 - The criticism
+# Chapter 6 - The criticism
 
 Bhushan had an office of staff, who work collectively to
 in  famous  magazines  and
@@ -657,7 +657,7 @@ went on like this….
 was  written  by  Sahith.  The  not-so-popular  author  who
 
 
-had already written 4 books, previously. This word, sadist,
+# had already written 4 books, previously. This word, sadist,
 is relatively new. I studied its origins, so you don’t have
 to. Let’s simply know it’s meaning. A sadist is someone
 who feels pleased, when he inflicts pain on others. Okay,
@@ -687,7 +687,7 @@ died. But, we found out. His mother and the author used
 to live at a hotel owner’s house. The hotel owner died a
 
 
-month after the death of author’s mother. The symptoms
+# month after the death of author’s mother. The symptoms
 suffered  by  hotel  owner  and  the  author’s  mother  were
 same. The symptoms were similar to Gonorrhoea. There
 were several rumours that both of them had that kind of
@@ -717,7 +717,7 @@ to. He is like a monster. He is a scarecrow who can even
 scare  humans.  No  wonder  why  he  is  unmarried.  What
 
 
-kind of girl comes forward to marry a monster like him.
+# kind of girl comes forward to marry a monster like him.
 Moreover, this novel contains a few anti-Hindu aspects.
 The  protagonist  is  a  Hindu.  He  is  portrayed  as  a
 psychopath.  He  never  stood  by  basic  principles  of
@@ -746,7 +746,7 @@ wrote  a  letter  to  government,  requesting  it  to  ban  this
 novel and cease any further publication of this novel.”
 
 
-Sharan met me.
+# Sharan met me.
 
 “That  fucker,  how  dare  he  bring  you  and  Hussain  into
 this? Sharan, do you believe in what he told people about
@@ -768,7 +768,7 @@ I went to Bhushan’s house. I was pushed out, by security
 guard.
 
 
-My  book  was  banned.  Further  publishing  is  ceased.  I
+# My  book  was  banned.  Further  publishing  is  ceased.  I
 faced  troubles  at  my  workplace.  The  same  way  I  was
 treated, when others knew I was a son of criminal. In fact,
 worse  than the  treatment  I got when I was a child. My
@@ -796,13 +796,13 @@ I  never  justified  murder  in  my  novel.  Even  though  the
 protagonist is redeemed, he dies at the end of the novel,
 
 
-as  a  price  he  pays  for  his  sins.  I  wrote  some  of  the
+# as  a  price  he  pays  for  his  sins.  I  wrote  some  of  the
 strongest female characters in my novel. He only spoke
 of  the  woman  involved  in  infidelity.  He  spoke  nothing
 about all these. Not even a single thing.
 
 
-Chapter 7 - Punishment or crime?
+# Chapter 7 - Punishment or crime?
 
 I  came  to  know  everything  about  what  happened.
 Thrigun saw the photo of my mother on the backside of
@@ -827,7 +827,7 @@ My father’s iron tools are the only properties I inherited
 from my father. I took my father’s trunk box out. It has
 
 
-knives,  crow  bars  and  other  tools.  All  of  them  were
+# knives,  crow  bars  and  other  tools.  All  of  them  were
 rusted,  including  the  trunk  box.  I  was  sharpening  the
 knives from past one month. I went to Sharan’s house. I
 asked him to prepare 2 chapathi with the special curry and
@@ -851,7 +851,7 @@ knife on his neck, and slightly pulled the handkerchief out
 of his mouth.
 
 
-“Yes, he is. He is with the housemaid. He told me to lock
+# “Yes, he is. He is with the housemaid. He told me to lock
 the door from outside, and not to allow anyone to avoid
 any sort of disturbance.”
 
@@ -883,7 +883,7 @@ law. Mrs. Maid, please put on your clothes and follow me.
 You can fuck him later, if he is alive.”
 
 
-I locked the maid in the next room, gave her a glass of
+# I locked the maid in the next room, gave her a glass of
 water. I told her not make any noise. If she violated this
 rule, I warned her that I would kill her.
 
@@ -907,7 +907,7 @@ mouth.
 “Yes, sir.”, the guard shouted.
 
 
-I  inserted  the  pinch  point  crowbar  into  Bhushan’s  anal
+# I  inserted  the  pinch  point  crowbar  into  Bhushan’s  anal
 orifice, and pushed it inside, a bit. He opened mouth, to
 groan in pain, and chapati roll slid a bit into his pharynx,
 and gag reflex occurred. Masala in the curry agitated the
@@ -929,7 +929,7 @@ anti-  clockwise.  He  was  crying  in  pain.  I  withdrew  the
 pinch point crowbar from his alimentary canal.
 
 
-He was groaning louder. It must had been so painful. He
+# He was groaning louder. It must had been so painful. He
 was reminding me that he had a son, and a loving family.
 He  told  me  that  his  son  would  lose  his  father.  He  was
 begging for his life. Speaking out, would have never been
@@ -953,7 +953,7 @@ groaning sounds are muffled, and he could hear what I
 tell him.
 
 
-“You  told  people  that  I  am  an  atheist.  No.  I  actually
+# “You  told  people  that  I  am  an  atheist.  No.  I  actually
 believe in God. You told people that I might have never
 gone to temple. I placed written manuscript of my novel
 in a temple, a mosque and a church. Do you know that?
@@ -980,7 +980,7 @@ about a sick mind, not with a sick mind.”
 He was dead.
 
 
-There  was  a big mirror hung in the room in  which  the
+# There  was  a big mirror hung in the room in  which  the
 maid  was  locked.  I  told  her  to  leave  the  place.  When  I
 looked  into  the  mirror,  I  saw  a  monster.  I  was  the
 monster. Looking into the eyes of that monster ,was like
@@ -1010,7 +1010,7 @@ What are your views on my deed? Is it a punishment or
 crime?
 
 
-Epilogue - Aftermath of murder
+# Epilogue - Aftermath of murder
 
 Bhushan’s  family  is  shattered  when  ugly  truths  about
 Bhushan and Thrigun came into light.
@@ -1038,7 +1038,7 @@ publishers  who  rejected  it  previously.  My  novel  was
 translated into other Indian languages. I wrote the English
 
 
-version of my novel from the prison. It was published in
+# version of my novel from the prison. It was published in
 English too. I told Hussain to collect the royalty money I
 received from my novels, and give it to Bhushan’s guard.
 
@@ -1061,7 +1061,7 @@ I  wouldn’t  have  become  popular  if  I  hadn’t  killed
 Bhushan. But, I would at least be free from this guilt.
 
 
-Now, you are ready to understand the different prison, I
+# Now, you are ready to understand the different prison, I
 talked about. This is going to get philosophical from here.
 Philosophy is told by incompetent people like me. But it
 is  still  very  essential.  The  prison  I  am  talking  about,  is
@@ -1088,7 +1088,7 @@ me. So, I developed a kind of superiority complex
 with respect to certain things.
 
 
-4)  Self-pity: Excessively feeling sad about your own
+# 4)  Self-pity: Excessively feeling sad about your own
 bad  circumstances/  misfortunes  that  happen  to
 you. This will fuel your resentment.
 
@@ -1113,7 +1113,7 @@ became  a  ‘Sadist’.  Whatever  Bhushan  told  media  and
 masses about me, that day, it eventually became true. I am
 
 
-in prison now. Sorry for the mistake, I was already locked
+# in prison now. Sorry for the mistake, I was already locked
 up  in  the  abstract  prison  created  by  my  mind,  which
 created an illusion that I am free to do anything, because
 I lost everything. That led to my actual imprisonment.
@@ -1132,7 +1132,7 @@ audience.
 ----
 
 
-Author’s note:
+# Author’s note:
 
 Vote of thanks:
 
@@ -1165,7 +1165,7 @@ Elocution  club  admin  S.Likhitha,  K.  Leeba  Tabsum,
 Aditi,  Kusumaapple,  Siva  Sai  Ramraj,    Praveen,  Lalith
 
 
-Narasimha,  Prashanth  Rohan,  Aaqib  Jawedh,  Chandra
+# Narasimha,  Prashanth  Rohan,  Aaqib  Jawedh,  Chandra
 Chapparapu and Venkat Sai for their support.
 
 The following notes are presented in a q&a format.
@@ -1196,7 +1196,7 @@ whether they had read the draft I mailed them. I had left
 that  work,  and  was  busy  with  academics.  But,  I  never
 
 
-thought that, those 2 pages would form the theme for my
+# thought that, those 2 pages would form the theme for my
 debut. After the final exams, I felt like I had some free
 time.  So,  I  thought  of  self  -publishing  a  story.  I  had  a
 variety of ideas, by the time I decided to publish a story.
@@ -1225,7 +1225,7 @@ I  went  on  adding  details  about  acromegaly,  Marquis  de
 Sade and Yanam.
 
 
-I did know the etymology of word, ‘Sadism’. That made
+# I did know the etymology of word, ‘Sadism’. That made
 me study almost all  the available information about the
 life  of  Marquis  de  Sade.  I  haven’t  read  any  of  Sade’s
 novels,  because  they  were  written  in  older  English.  I,
@@ -1257,7 +1257,7 @@ between France and India. It was then, Yanam came to
 rescue. During French rule in India, Yanam was a French
 
 
-colony. It was under French rule, upto 1954. Now, it is
+# colony. It was under French rule, upto 1954. Now, it is
 under the governance of Union territory of Pondicherry.
 I haven’t been to Yanam. I took the help of tourist vlogs
 and  wikipedia  and  Google  images  to  know  how  the
@@ -1286,7 +1286,7 @@ resonated with my opinion on this. I respect everyone’s
 opinion.
 
 
-Why was medical terminology used?
+# Why was medical terminology used?
 
 It  was  definitely,  not  used  to  show  off  that  I  know
 something. It was used to convince the intelligent readers,
@@ -1317,7 +1317,7 @@ and useless rant about him. This kind of toxic criticism
 resonated  with  the  theme  of  my  story.  It  is  one  of  the
 
 
-themes  I  wanted  to  convey  to  my  readers,  through
+# themes  I  wanted  to  convey  to  my  readers,  through
 ‘Prison’.
 
 Why is the over-the-top violence?
@@ -1345,7 +1345,7 @@ people feel uncomfortable about. I don’t want to pretend
 I am good, to impress people. I wanted to be shameless
 
 
-and honest with my readers, exposing my true self. In that
+# and honest with my readers, exposing my true self. In that
 process,  I  apologise  for  making  your  Google  search
 history impure. I am sorry if you are made uncomfortable
 by any of the themes.
@@ -1376,7 +1376,7 @@ and originally, you are not that kind of person.
 are  happy  to  see  that  happen,  it  tells  you  more  about
 
 
-yourself, and your state of mind, than that of the person
+# yourself, and your state of mind, than that of the person
 who wrote it.
 
 Why didn’t Sahith attack Thrigun?
@@ -1407,7 +1407,7 @@ I deliberately wanted it to be slow pace. There is a reason
 for sudden change of pace. I wanted to create an opinion
 
 
-in reader’s mind about being quick in judging, if the reader
+# in reader’s mind about being quick in judging, if the reader
 thought  why  on  earth  is  the  author  writing  about
 chapathi, Yanam, etc., in a slow pace, I wanted them to
 be shocked by sudden change of pace from slow to fast,
@@ -1432,7 +1432,7 @@ multiple  times,  and  finally  hit  the  publish  button.  I
 worked on it for 4 or 5 hours a day.
 
 
-Why do I even write?
+# Why do I even write?
 
 Because, I find solace in writing. I am not obsessed with
 the number of reads this story gets. I just wanted to give
@@ -1461,7 +1461,7 @@ not sponsor me anything. I just mentioned it). It was fun,
 drawing. I am not a pro artist. But, simply enjoyed that.
 
 
-Later, in 5th std., we parted ways as I went to a different
+# Later, in 5th std., we parted ways as I went to a different
 school. In 6th std., our maths teacher, Murali sir, narrated
 a horror story in remedial period. I was fascinated by the
 way he narrated it. From then on, I orally narrated stories
@@ -1502,7 +1502,7 @@ influence  on  me.  I  started  reading  western
 great
 
 
-philosophers like Nietzsche and Schopenhauer during my
+# philosophers like Nietzsche and Schopenhauer during my
 +2.
 
 When  it  comes  to  movies,  I  watch  movies  from  all
