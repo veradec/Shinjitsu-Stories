@@ -10,19 +10,12 @@ characters, and highly specific to the characters, and there won't be any genera
 ## 21st April, 2022, Sumant’s bedroom…
 
 Four more strokes, I guess I’ll cum like never before. Certainly, this is my longest masturbation session.
-
 Oh God! This is heaven.
-
 What? Can’t bear to see me naked?
-
 There’s no rush, I’ll pull up my pants after panting.
-
 I have to get my phone that’s in silent mode, but I don’t remember where I put it.
-
 52 times! He called me these many times! I called him back.
-
-“Hello, Rohit!”
-
+“Hello, Rohit!"
 “How many times should I call you, Sumant? We agree that we made a mistake. I apologise now, on their behalf too. We’re sorry.”
 
 “The phone was in silent mode.” “Oh!”
