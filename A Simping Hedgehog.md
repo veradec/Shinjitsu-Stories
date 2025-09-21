@@ -1,5 +1,5 @@
 <trig>
-CONTENT WARNING: This work is appropriate for readers of age, 18 years and above, due to explicit references to some sexual acts, and strong language.
+This work is appropriate for readers of age, 18 years and above, due to explicit references to some sexual acts, and strong language.
 
 Also, though, this is a dark comedy, there won't be any offence to any of the races/religions/genders. All the dark comedy is done on the
 
