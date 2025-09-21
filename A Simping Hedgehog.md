@@ -1,20 +1,13 @@
-Triggers/ Content warning    
-CONTENT WARNING: This work is appropriate for readers of age, 18  
-years and above, due to explicit references to some sexual acts, and  
-strong language.    
-Also, though, this is a dark comedy, there won't be any offence to any of  
-the races/religions/genders. All the dark comedy is done on the  
-characters, and highly specific to the characters, and there won't be any  
-generalisation.    
-Prologue    
-21st April, 2022, Sumant’s bedroom…    
-Four more strokes, I guess I’ll cum like never before. Certainly, this is my  
-longest masturbation session.    
+**Triggers/ Content warning  
+CONTENT WARNING: This work is appropriate for readers of age, 18 years and above, due to explicit references to some sexual acts, and  strong language.    
+Also, though, this is a dark comedy, there won't be any offence to any of  the races/religions/genders. All the dark comedy is done on the  characters, and highly specific to the characters, and there won't be any  generalisation.**  
+# Prologue    
+## 21st April, 2022, Sumant’s bedroom…    
+Four more strokes, I guess I’ll cum like never before. Certainly, this is my longest masturbation session.   
 Oh God! This is heaven.    
 What? Can’t bear to see me naked?    
 There’s no rush, I’ll pull up my pants after panting.    
-I have to get my phone that’s in silent mode, but I don’t remember  
-where I put it.    
+I have to get my phone that’s in silent mode, but I don’t remember  where I put it.    
 52 times! He called me these many times!    
 I called him back.    
 “Hello, Rohit!”    
@@ -27,10 +20,10 @@ the blue, after 5 years of no contact? If you tell me anything but truth,
 I’ll hang up.”    
 “ Yes, we’re sorry.”    
 No. I sense a lie. I swear. Wanna check?    
-“ I accept your apology. Is that the true reason you called me?”    
-“ Yes. No ulterior motives.”    
-“ You, sure?”    
-“ Yes.”    
+“I accept your apology. Is that the true reason you called me?”    
+“Yes. No ulterior motives.”    
+“You, sure?”    
+“Yes.”    
 “Ok, then. Bye.”    
 “Hey, hey, hey, wait, wait, wait. Please, don’t hang up.”    
 “ Why?”    
@@ -69,8 +62,7 @@ police station for harassment case.
 “ Asshole! You’re the one with problem. You called me for help. Cut  
 straight to the point.”    
 “ Sorry. Are you busy?”    
-I wish he gets erectile dysfunction right when his wife calls him for  
-having sex.    
+I wish he gets erectile dysfunction right when his wife calls him for having sex.    
 “ I have to upload that recording on a website.”    
 “ Wow, that’s nice! What’s the recording about?”    
 Nice? Wow? What the fuck?    
@@ -91,18 +83,15 @@ such stuff?”
 Now, I doubt that Rohit gets aroused to such stuff.    
 “ What?”    
 “ Usually, normal people get aroused seeing humans having sex, right?  
-What’s the point in uploading this weird stuff? How can it even be  
-sold?”    
-That’s for normal people, Rohit. Not for you. As long as people like you  
-exist, stuff like this gets sold.    
-“ Well, there are some wildly perverse people who’ll be turned on by  
-such stuff.”    
+What’s the point in uploading this weird stuff? How can it even be sold?”    
+That’s for normal people, Rohit. Not for you. As long as people like you exist, stuff like this gets sold.    
+“ Well, there are some wildly perverse people who’ll be turned on by such stuff.”    
 “ Oh my God! For real? Do such people exist?”    
 It can’t sound faker than this. The probability of him, getting aroused to  
 the dogs fucking, has increased ten fold.    
-“ Yeah, I did upload once before, on a popular porn site. But that wasn’t  
-interracial. The video quality was poor. Yet, it managed to garner decent  
-number of views. Some people watch it for amusement, but, there’s  
+“ Yeah, I did upload once before, on a popular porn site. But that wasn’t
+interracial. The video quality was poor. Yet, it managed to garner decent
+number of views. Some people watch it for amusement, but, there’s
 definitely a section of wildly perverse people out there, waiting to  
 watch such stuff.”    
 “ Why do you upload them?”    
