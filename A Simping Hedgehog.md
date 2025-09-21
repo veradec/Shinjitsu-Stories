@@ -26,36 +26,24 @@ No. I sense a lie. I swear. Wanna check?
 “Ok, then. Bye.”    
 “Hey, hey, hey, wait, wait, wait. Please, don’t hang up.”    
 “ Why?”    
-“ Please, don’t refuse. You have to do something very important to me.  
+“Please, don’t refuse. You have to do something very important to me.  
 I’m stuck in a very serious situation.”    
-See. I told you all. Why do these people act so dumb? He could’ve  
-spoken casually, then, may be after a day or two, he could’ve asked for  
-my help. Just see that sugar rush to seek help shamelessly after 5 years  
-of no contact, and leaving you unanswered. I told you, that it’s a bluff  
-that he called me only to apologise. How amateur way of lying! How  
-pathetic he is!    
-I really don’t want to confront him for lying, because I’ll really die of  
-cringe, listening to the disturbingly dumb reasoning that his brain cooks  
-up , to destroy the blissful afterglow of a heavenly session.    
-“ Are you busy? Like, I called you 54 times. You didn’t answer.”  
-From where on earth, did he add those 2 extra times he never called?  
-Why am I even listening to him? Do I feel that much longing for all those  
-ghastly stick figures from my past to show up again in my life? Am I that  
-lonely, now?    
-“ Yes. I was recording.”    
-Hasn’t he just said that he stuck his ass in serious situation? Why does  
-he speak about me, now?    
-“ Oh, great!”    
-Does he even know what I was recording 2 hours ago, when he called  
-for the first time?    
-“ What’s the matter, Rohit? Why did you call me?”    
+See. I told you all. Why do these people act so dumb? He could’ve spoken casually, then, may be after a day or two, he could’ve asked for my help. Just see that sugar rush to seek help shamelessly after 5 years of no contact, and leaving you unanswered. I told you, that it’s a bluff that he called me only to apologise. How amateur way of lying! How pathetic he is!  
+I really don’t want to confront him for lying, because I’ll really die of cringe, listening to the disturbingly dumb reasoning that his brain cooks  up, to destroy the blissful afterglow of a heavenly session.  
+“Are you busy? Like, I called you 54 times. You didn’t answer.”  
+From where on earth, did he add those 2 extra times he never called?Why am I even listening to him? Do I feel that much longing for all those ghastly stick figures from my past to show up again in my life? Am I that lonely, now?    
+“Yes. I was recording.”    
+Hasn’t he just said that he stuck his ass in serious situation? Why does he speak about me, now?    
+“Oh, great!”  
+Does he even know what I was recording 2 hours ago, when he called for the first time?  
+“What’s the matter, Rohit? Why did you call me?”    
 For respecting your intelligence’s sake at least, he shouldn’t say that he  
 called me to apologise.    
 “To apologise to you.”    
 “Ok. Then, bye.”    
 I cut the call. He calls again, shamelessly.    
 “ What’s the problem? Why do you cut the call? Please, speak to me.”    
-I never pleaded anyone like him, not even to any of the girls who left me.    
+I never pleaded anyone like him, not even to any of the girls who left me.
 If I had done, forget about their re-entry into my life, I’d be sitting in a  
 police station for harassment case.    
 “ Asshole! You’re the one with problem. You called me for help. Cut  
@@ -88,20 +76,14 @@ That’s for normal people, Rohit. Not for you. As long as people like you exist
 “ Oh my God! For real? Do such people exist?”    
 It can’t sound faker than this. The probability of him, getting aroused to  
 the dogs fucking, has increased ten fold.    
-“ Yeah, I did upload once before, on a popular porn site. But that wasn’t
-interracial. The video quality was poor. Yet, it managed to garner decent
-number of views. Some people watch it for amusement, but, there’s
-definitely a section of wildly perverse people out there, waiting to  
-watch such stuff.”    
+“ Yeah, I did upload once before, on a popular porn site. But that wasn’tinterracial. The video quality was poor. Yet, it managed to garner decent number of views. Some people watch it for amusement, but, there’s definitely a section of wildly perverse people out there, waiting to watch such stuff.”    
 “ Why do you upload them?”    
 “Just for fun. I find fun in experimenting to know the mindsets of wide  
 variety of people. They amuse me.”    
 Even Rohit amuses me with his stupidity.    
 “Ohhh!”    
 Has he just moaned, now?    
-“Can you share me the link to the video after you uploaded it? I really  
-want to check out how many views it'll get, so that I too can know how  
-many weird people are there?”    
+“Can you share me the link to the video after you uploaded it? I really want to check out how many views it'll get, so that I too can know how many weird people are there?”    
 No doubt, Rohit gets aroused seeing such stuff.    
 “Now, tell me what your problem is.”    
 “ My wife…Pavani…”    
@@ -136,12 +118,7 @@ you’re a certified counselling psychologist.”
 “ You do. You do. But, you also do this, right? My distant relative told  
 me that you helped him resolve his relationship issues. You run a  
 consultancy under the name, Hedgehog.”    
-“Actually, I’m not a relationship counselor or something even remotely  
-close. Your distant relative or whatever, as far as I remember I helped a  
-woman, who’s a friend of my cousin, to resolve her issue with her  
-boyfriend, and it does not fall under the domain of counseling  
-psychology. It was done because the woman was my cousin’s friend,  
-and he asked me for help. “    
+“Actually, I’m not a relationship counselor or something even remotely close. Your distant relative or whatever, as far as I remember I helped a woman, who’s a friend of my cousin, to resolve her issue with her boyfriend, and it does not fall under the domain of counseling psychology. It was done because the woman was my cousin’s friend, and he asked me for help. “    
 “Okay, then. Please help me like you helped her. “    
 He should be ashamed of himself.    
 “I’ll help. I hadn’t charged her, back then, but I’ll charge you now. “    
@@ -296,19 +273,13 @@ He knows the reason.
 No, no, no, no, no, no, no, no. Wait, wait, wait, wait, wait.  
 “ It’s called the ‘H’ hypothesis, or Hareesh hypothesis.”  
 Ah, shit! Here he goes again.  
-“ According to this hypothesis, the man whose name doesn’t have the  
-letter ‘H’ can never get a hoe. Also, the probability of getting a hoe Is  
+“ According to this hypothesis, the man whose name doesn’t have the
+letter ‘H’ can never get a hoe. Also, the probability of getting a hoe Is
 directly proportional the number of Hs in your name. Any doubts?”  
-Does he think this is some Quantum mechanics? Should I scratch my  
-head and pretend that I can’t understand or should I consider this a  
-joke, and laugh?  
-“ For example, my name has 7 Hs, including my initial, so I got a  
-girlfriend earlier and easier than you, hahahahahahaha!”  
-Why does he stress so much on ‘H’ while laughing? Why reinforce the  
-fact that his name has 7 Hs by ‘Ha’ ing 7 times. Why can’t he just ‘Ha’  
-two times, and say HaHa?”  
-“ The problem with my name is because of that senseless  
-numerologist.”  
+Does he think this is some Quantum mechanics? Should I scratch my head and pretend that I can’t understand or should I consider this a joke, and laugh?  
+“ For example, my name has 7 Hs, including my initial, so I got a girlfriend earlier and easier than you, hahahahahahaha!”  
+Why does he stress so much on ‘H’ while laughing? Why reinforce the fact that his name has 7 Hs by ‘Ha’ ing 7 times. Why can’t he just ‘Ha’ two times, and say HaHa?”  
+“ The problem with my name is because of that senseless numerologist.”  
 “ HaHaHaH…”  
 “ Stop ‘Ha’ ing motherfucker, or else I’ll blow your brains out.”  
 Why have I spoken like Tarantino’s character now?  
