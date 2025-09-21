@@ -53,9 +53,7 @@ I wish he gets erectile dysfunction right when his wife calls him for having sex
 “ I have to upload that recording on a website.”    
 “ Wow, that’s nice! What’s the recording about?”    
 Nice? Wow? What the fuck?    
-“ Morning, when I was basking in sunlight on our terrace, I saw two  
-dogs copulating. I got camera real quick, and recorded that sacred act. It  
-was interracial. A black dog fucking a white bitch.”    
+“ Morning, when I was basking in sunlight on our terrace, I saw two dogs copulating. I got camera real quick, and recorded that sacred act. It was interracial. A black dog fucking a white bitch.”  
 “ You’re crazy! That’s repulsive.”    
 “ So, please, don’t seek the help of a mad man.”    
 “No, that’s not what I intend.”    
@@ -189,10 +187,7 @@ I got busy tone on his number, once, during those 39 attempts.
 “ No. You didn’t lose your phone, you answered Ravi’s call that day.”    
 “ How did you know? Did Ravi tell you?”    
 Stone in the dark hit the target’s ass.    
-“ After your marriage, you passed a comment during your discussion  
-with Ravi that who would care for a self destructive freak who never  
-knew the touch of a woman, and a person cynical enough to remain  
-unworthy of any love for his lifetime. Right?”    
+“ After your marriage, you passed a comment during your discussion with Ravi that who would care for a self destructive freak who never knew the touch of a woman, and a person cynical enough to remain unworthy of any love for his lifetime. Right?”    
 “ Come on, did Ravi tell you this too?”    
 “ So, you agree that you did these and said these?”    
 “ I’m sorry.”    
@@ -206,18 +201,13 @@ people that you said these things about me, Rohit. Just, tried to confirm.
 close we were, to each other?”    
 Funny. I want to laugh my ass out, as soon as I cut the call.    
 “ How will you do that? Think of it.”    
-“ It’s impossible, without letting her know. How and where does it even  
-cast a shadow? If she knows, it will be the surest possible way to  
-divorce.”    
+“ It’s impossible, without letting her know. How and where does it even cast a shadow? If she knows, it will be the surest possible way to divorce.”    
 “ Exactly. Your wife will be afraid of your weird fantasies. You’ll become  
 repulsive. Now, who’ll be a freak?”    
 “ Now, I understand why you told me to do this.”    
 There’s no rocket science in it. Even if you can’t understand after my  
 clear explanation, there’s nothing that can fix your relationship.    
-“ You called me a simp, during our 2nd year of MBBS. What’ve you  
-become by the end of 3rd year. You ended up being simp for Pavani.  
-Remember, you’ll become whatever you told me I was, if I had focused  
-on playing part in your downfall for personal vendetta.”    
+“ You called me a simp, during our 2nd year of MBBS. What’ve you become by the end of 3rd year. You ended up being simp for Pavani. Remember, you’ll become whatever you told me I was, if I had focused on playing part in your downfall for personal vendetta.”    
 No. It’s really not about my focus. It’s about his static nature of staying  
 dumb, and never actually learning or growing.    
 “So, the movie condition is enough, right?”    
